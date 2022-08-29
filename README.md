@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HaydenKendrick
-- 👀 I’m interested in gmaing, working out, military
+- 👀 I’m interested in gaming, working out, military
 - 🌱 I’m currently learning no clue
 - 💞️ I’m looking to collaborate on n/a
 - 📫 How to reach me: pls dont
